@@ -1,4 +1,2 @@
 # Braden Toone
-
-
-# Elise Gordon
+# Emma Bastian
